@@ -1,0 +1,1 @@
+# N-zd-A-vad-robot-2024-Online-Magyarul-VIDEA
